@@ -1,4 +1,4 @@
-
+Experience scary shawarma kiosk like never before with custom Script for scary shawarma kiosk, the #1 Script. Includes invisibility and auto-collect
 
 
 
